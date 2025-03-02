@@ -1,5 +1,6 @@
 ## Hi there 👋
 
+I am currently studying for a degree in 🪐Astronomy and Astrophysics🪐 and I am passionate about exploring the vast universe that surrounds our planet.🌠
 <!--
 **Tarryn-Bailey/Tarryn-Bailey** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
